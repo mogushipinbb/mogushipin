@@ -1,23 +1,23 @@
 
 # :sparkles::sparkles:蘑菇视频最新发布页:sparkles::sparkles:
 
- :heart: :point_right: 【最新地址1】 ：https://mogushipinb.github.io/mogushipin/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址1】 ：https://mogushipinc.github.io/mogushipin/  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址2】 ：https://mogushipinb.github.io/mogushipin/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址2】 ：https://mogushipinc.github.io/mogushipin/  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址3】 ：https://mogushipinb.github.io/mogushipin/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址3】 ：https://mogushipinc.github.io/mogushipin/  （点击打开，看完记得收藏)
  ------ 
- :heart: :point_right: 【最新地址4】 ：https://mogushipinb.github.io/mogushipin/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址4】 ：https://mogushipinc.github.io/mogushipin/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址5】 ：https://mogushipinb.github.io/mogushipin/ （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址5】 ：https://mogushipinc.github.io/mogushipin/ （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址6】 : https://mogushipinb.github.io/mogushipin/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址6】 : https://mogushipinc.github.io/mogushipin/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址7】 ：https://mogushipinb.github.io/mogushipin/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址7】 ：https://mogushipinc.github.io/mogushipin/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址8】 ：https://mogushipinb.github.io/mogushipin/  （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址8】 ：https://mogushipinc.github.io/mogushipin/  （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址9】 ：https://mogushipinb.github.io/mogushipin/   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址9】 ：https://mogushipinc.github.io/mogushipin/   （点击打开，看完记得收藏)
   ------
 
   
